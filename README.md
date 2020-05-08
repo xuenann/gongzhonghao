@@ -43,7 +43,11 @@ P30 关于引流的
 
 
 
-#### 同时，也欢迎学习公众号的同学们分享你的学习笔记，我的公众号二维码也会放上，欢迎大家一起学习交流！
+#### 我的公众号二维码如下，我会不定期分享自己学习过程中搜集的资源和笔记。
+
+![weix](http://r.photo.store.qq.com/psc?/V14Kh6sc4H188n/ZYdA7ngrZ.*9Y7Y7Ouin2LsGWr9StQLTr1swR33dFzZDA6p38rwhG5y69mhRH.sdF3Q1e5MYSiwXpisodQ4zEutj01CWqNk32KgVsuchg8A!/r)
+
+#### 欢迎大家一起学习交流！
 
 
 
